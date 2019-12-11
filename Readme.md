@@ -5,4 +5,4 @@
  Saiba mais no lin
 
 
-Gostou do curso? Quer mais? Ajude com uma doação
+Gostou do curso?
