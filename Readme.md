@@ -2,7 +2,10 @@
 
  Este é um repositorio teste
 
- Saiba mais no lin
+Saiba mais no link
 
 
-Gostou do curso? Quer mais? Ajude com uma doação
+Gostou do curso?
+
+
+Primeiros
